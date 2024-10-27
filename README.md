@@ -19,4 +19,13 @@ Links: [CV](https://www.canva.com/design/DAF7Sy_exk8/SSO84IalRfgQAEWkzZVwvw/view
    
 
    [ReelIluminacion](https://vimeo.com/manage/videos/934538572)
+   
+
+   Proyecto Final De Master
+
+   
+   [Animación](https://vimeo.com/934539351?from=outro-local)
+   
+
+   [MakingOfAnimación](https://vimeo.com/934539501?from=outro-local)
 
