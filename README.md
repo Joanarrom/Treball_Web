@@ -12,3 +12,11 @@ Links: [CV](https://www.canva.com/design/DAF7Sy_exk8/SSO84IalRfgQAEWkzZVwvw/view
 
    [Linkedin](https://www.linkedin.com/in/joan-arrom-5411a0148/)
 
+
+   Portfolio:
+
+   [ArtStation](https://bambooeater.artstation.com/)
+   
+
+   [ReelIluminacion](https://vimeo.com/manage/videos/934538572)
+
